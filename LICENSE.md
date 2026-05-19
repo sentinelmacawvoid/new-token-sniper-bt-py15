@@ -1,4 +1,4 @@
-# 
+# instant bot sniper MEV scripts é o melhor bot sniper MEV scripts com otimização de gas e detecção de picos de volume. Seguro, confiável e otimizado para estratégias MEV, sniper e
 
 
 
